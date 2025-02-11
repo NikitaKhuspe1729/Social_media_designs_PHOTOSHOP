@@ -2,6 +2,8 @@
 Designed social media designs using PHOTOSHOP
 Created social media designs using Photoshop.
 # Unleash Your Potential
-![Unleash_your_potential](https://github.com/user-attachments/assets/8e792191-873b-4ccc-95c3-9e751daba698)
+![Unleash_your_potential](https://github.com/user-attachments/assets/0e95adde-47e7-4be9-95af-133bb7c716d9)
+
 # New arrival shoes
-![SHOES](https://github.com/user-attachments/assets/1ed3526d-65b2-4db7-b6c7-fa13c2931bf0)
+![SHOES](https://github.com/user-attachments/assets/6d0f800f-c3c2-42c0-87d3-f2d69856cded)
+
