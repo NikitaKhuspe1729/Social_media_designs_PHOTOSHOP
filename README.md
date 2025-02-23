@@ -1,6 +1,9 @@
 # Social_media_designs_PHOTOSHOP
 Designed social media designs using PHOTOSHOP
 Created social media designs using Photoshop.
+# CaratBazar assignment jewellery post
+![caratbazar assignment](https://github.com/user-attachments/assets/eef85624-ba26-4066-ab11-c5dc3ebbe85b)
+
 # Unleash Your Potential
 ![Unleash_your_potential](https://github.com/user-attachments/assets/0e95adde-47e7-4be9-95af-133bb7c716d9)
 
